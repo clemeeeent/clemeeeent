@@ -1,0 +1,4 @@
+- 👋 Bonjour tout le monde, je m'appelle Clément
+- 💞️ Je collabore dans :**rien pour l'instant**
+- 📫 Comment me contacter : **Discord : @clement__.**
+- 😄 Pronoms: il, lui
